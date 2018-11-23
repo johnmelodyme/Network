@@ -3,5 +3,6 @@ A virtual private network (VPN) is a technology that creates a safe and encrypte
 So Here, the files. Get free here.
 
 Download App file : https://www.softether-download.com/en.aspx?product=softether
+Alternative mirror : https://drive.google.com/open?id=1O9vngvVwprsn16T42zvzO8BRGrtOdle1
 
 
